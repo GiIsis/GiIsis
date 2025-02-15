@@ -1,7 +1,7 @@
 # Giovana Isis
 
 👋🏼Olá! Me chamo Giovana (Gi😊), decidi mergulhar no universo da Tecnologia 👩🏻‍💻 e hoje curso duas graduações simultâneas: estou no terceiro semestre em **Análise e Desenvolvimento de Sistemas** na Fatec e **Engenharia de Software** (EAD) na UNINTER.  
-No tempo livre, sou leitora voraz de livros 📚 de Ficção/Fantasia e artesã 🧶 ([@tristars_gi.croche](https://www.instagram.com/tristars_gi.croche?igsh=N3gxcG51ajdzb2Mx)).
+No tempo livre, sou leitora voraz de livros 📚 de Ficção/Fantasia e artesã 🧶 ([@pontosconstelares](https://www.instagram.com/pontosconstelares?igsh=N3gxcG51ajdzb2Mx)).
 
 ## Conecte-se comigo
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/giovana-silva-7957b3257)
