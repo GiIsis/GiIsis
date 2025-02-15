@@ -1,6 +1,6 @@
 # Giovana Isis
 
-👋🏼Olá! Me chamo Giovana (Gi😊), decidi mergulhar no universo da Tecnologia 👩🏻‍💻 e hoje curso duas graduações simultâneas: estou no primeiro semestre em **Análise e Desenvolvimento de Sistemas** na Fatec e **Engenharia de Software** (EAD) na UNINTER.  
+👋🏼Olá! Me chamo Giovana (Gi😊), decidi mergulhar no universo da Tecnologia 👩🏻‍💻 e hoje curso duas graduações simultâneas: estou no terceiro semestre em **Análise e Desenvolvimento de Sistemas** na Fatec e **Engenharia de Software** (EAD) na UNINTER.  
 No tempo livre, sou leitora voraz de livros 📚 de Ficção/Fantasia e artesã 🧶 ([@tristars_gi.croche](https://www.instagram.com/tristars_gi.croche?igsh=N3gxcG51ajdzb2Mx)).
 
 ## Conecte-se comigo
